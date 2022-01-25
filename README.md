@@ -1,2 +1,2 @@
 # wiki
-Amogusd sushsfdafd
+CORP Game engine is a sussy game engine
